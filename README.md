@@ -1,6 +1,8 @@
 # PVDcrimemap
 Transparency + Community = Safety 
+
 HELLO PROVIDENCE 
+
 I created this map for the sole purpose of community transparancy and authoritative accountabilty. 
 Crime has spiked nationwide and Providence specifically has a significant property theft problem. 
 This summer alone there have been hundreds of break-ins. Yet members of the community are in the dark.
