@@ -15,8 +15,12 @@ That's where the safety equation comes in. Transparancy plus community equals sa
 We all use our phones for everything, why not for keeping our neighbors aware of crimes taking place? 
 My hope for this map is that it is used as a blueprint for community safety. 
 
-Disclaimer: I am not advocating for dissolvong strutueral public safgety systems. We need the police, and despite egregious grievances against members of the black commuity there has been a lot of good done by them. It is not an easy job. However, their job is to serve and protect. Hundreds of break-ins in a small city points to some lack of accountabilty on their end. 
-Disclaimer: I am not advocating for renegade justice or Robin Hooding. However, several studies have shown the efficacy of community patrols. This can be done without leaving the house: by keeping tabs of crimes in the neighborhood, members of the community are armed with knowledge that may help mitgate future crimes. 
+Disclaimer #1 : I am not advocating for dissolving structural public safety systems. We need the police. While egregious grievances against members of the black commuity have taken place, and rightfully addressed, there has been a lot of good done by them. It is not an easy job. However, their job is to serve and protect and many Providence residents feel as though they are not protecting or serving. Hundreds of break-ins in a small city points to some lack of accountabilty on their end. I myself have been a victim of a recent crime and when I gave my statement I was laughed at by a member of Providence PD. This is not how we treat our citizens. Especially those in a vulnerable state who just want the bad guy taken off the streets. If they are overworked then perhaps the community should step in. 
+
+Disclaimer #2 : I am not advocating for renegade justice or Robin Hooding. However, several studies have shown the efficacy of community patrols. This can be done without ever leaving the house: by keeping tabs of crimes in the neighborhood, members of the community are armed with knowledge that may help mitgate future crimes. My PVD crime map is all about harnessing the power of technology to keep tabs on crimes happening in the community.  
+
+Disclaimer #3: While all crime data is public, all reports are anonymous and personal details are left out to ensure complete confidentiality. 
+
 We are all in this together. Stay woke. And be kind ㋡ 
 
  © MISCHA DOWNING | GHOSTMODERN © | ALL RIGHTS RESERVED 
