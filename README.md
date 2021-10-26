@@ -6,7 +6,7 @@ HELLO PROVIDENCE
 I created this map for the sole purpose of community transparancy and authoritative accountabilty. 
 Crime has spiked nationwide and Providence specifically has a significant property theft problem. 
 This summer alone there have been hundreds of break-ins. Yet members of the community are in the dark.
-Despite crime data being made publicly available on the Providence case log portal, many are unware. 
+Despite crime data being made publicly available on the Providence case log portal, many are unaware of what is happening in their neighborhoods. 
 Knowledge is power. If communities are aware of these crimes happening then certainly more can be done to prevent them from happening. 
 When something is wrong with our bodies, we go to the doctor (if you have insurance anyway...) 
 If something is wrong with our communities, where do we go? The police are like the ER: a last resort. We need preventitive care for our city. 
