@@ -11,7 +11,7 @@ Knowledge is power. If communities are aware of these crimes happening then cert
 
 When something is wrong with our bodies, we go to the doctor (if you have insurance anyway...) 
 If something is wrong with our communities, where do we go? The police are like the ER: a last resort. We need preventitive care for our city. 
-That's where the safety equation comes in. Transparancy plus community equals safety (for lack of a better word.) 
+That's where the safety equation comes in. Transparency plus community equals safety (for lack of a better word.) 
 We all use our phones for everything, why not for keeping our neighbors aware of crimes taking place? 
 My hope for this map is that it is used as a blueprint for community safety. 
 
