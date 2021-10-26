@@ -14,6 +14,7 @@ If something is wrong with our communities, where do we go? The police are like 
 That's where the safety equation comes in. Transparancy plus community equals safety (for lack of a better word.) 
 We all use our phones for everything, why not for keeping our neighbors aware of crimes taking place? 
 My hope for this map is that it is used as a blueprint for community safety. 
+
 Disclaimer: I am not advocating for dissolvong strutueral public safgety systems. We need the police, and despite egregious grievances against members of the black commuity there has been a lot of good done by them. It is not an easy job. However, their job is to serve and protect. Hundreds of break-ins in a small city points to some lack of accountabilty on their end. 
 Disclaimer: I am not advocating for renegade justice or Robin Hooding. However, several studies have shown the efficacy of community patrols. This can be done without leaving the house: by keeping tabs of crimes in the neighborhood, members of the community are armed with knowledge that may help mitgate future crimes. 
 We are all in this together. Stay woke. And be kind ㋡ 
